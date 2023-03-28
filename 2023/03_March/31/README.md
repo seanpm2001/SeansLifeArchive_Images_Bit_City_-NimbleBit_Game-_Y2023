@@ -1,7 +1,7 @@
 
 ***
 
-# 2023, Friday, April 1st - Didn't play
+# 2023, Friday, March 31st - Didn't play
 
 I didn't play Bit City today. Today was not a scheduled day to play.
 
